@@ -1,2 +1,2 @@
-# Projet-plante-connet-e
+# Projet-plante-connetée
 Groupe Théo GASCHARD et Romain TRAUCHESSEC
